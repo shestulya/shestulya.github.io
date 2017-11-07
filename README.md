@@ -1,1 +1,0 @@
-# shestulya.github.io
